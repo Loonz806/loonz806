@@ -1,4 +1,4 @@
-### Hi there 👋
+### Every person is a contributor to your journey, open minds and be kind 👋 🏔 🌊 🌲 
 <!--
 **Loonz806/loonz806** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
